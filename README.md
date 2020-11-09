@@ -13,7 +13,7 @@ I was looking for something centralized in terms of a location of all the handle
 
 ## Mike Beedle
 
-[Murdered in March 2018.](https://chicago.cbslocal.com/2018/04/19/why-wasnt-he-already-behind-bars-stabbing-suspect-previously-arrested-98-times/)
+[Died, March 2018](https://chicago.cbslocal.com/2018/04/19/why-wasnt-he-already-behind-bars-stabbing-suspect-previously-arrested-98-times/)
 
 ## Arie van Bennekum
 
